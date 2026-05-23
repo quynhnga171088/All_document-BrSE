@@ -1,0 +1,3 @@
+BrSE nontech-câu chuyện thị trường - có cầu ắt có cung
+Dạo gần đây, lượn quanh các hội nhóm BrSE, nhìn vào các bài đăng tuyển dụng, mình thường bắt gặp tin tuyển dung BrSE nontech, hay tuyển IT Comtor định hướng BrSE, hay tuyển BA biết tiếng Nhật định hướng BrSE.
+Dưới các bài đăng, thường dễ bắt gặp một vài comment bỉ bôi nontech, kiểu dạng như: nontech thì chỉ dịch thôi chứ làm BrSE sao được, nontech mà gọi là BrSE, nontech thì chỉ truyền đạt thông tin thôi…
